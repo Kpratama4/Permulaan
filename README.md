@@ -1,0 +1,2 @@
+# Permulaan
+awal-awal belajar
